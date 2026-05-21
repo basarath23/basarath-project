@@ -1,1 +1,0 @@
-# basarath-project
